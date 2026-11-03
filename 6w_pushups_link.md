@@ -1,0 +1,1 @@
+/home/korwin/Documents/6w_pushups.md
